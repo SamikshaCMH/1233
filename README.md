@@ -4,20 +4,5 @@
 
 
 
-\n\n### Current white wine selections\n
-            \n\n1.**2022 Carneros Chardonnay**
-            *Truchard Vineyard | 14.8% ABV*
-            - **Tasting Notes:** Balanced with a touch of oak and a creamy mouthfeel, but not overly buttery. It’s a **favorite with members!**
-            - **Food pairings:** Perfect with roasted chicken or creamy pasta dishes.
-            
-            \n\n[Shop 2022 Chardonnay](https://jessupcellars.com/shop/?view=product&slug=2022-carneros-chardonnay-current-releases)
-            \n\n**Price:** $55.00 (non-members)
-
-            \n\n2. **2023 Sauvignon Blanc**
-            *North Coast | 15.1% ABV*
-            - **Tasting Notes:** Refreshing tropical and fruity notes of pineapple and mango. The ideal wine for a summer evening.
-            - **Food Pairings:** Great for seafood dishes like ceviche or grilled prawn cocktails. Also pairs well with tacos, or even a peach & burrata salad.
-            
-            \n\n[Shop Sauvignon Blanc](https://jessupcellars.com/shop/?view=product&slug=2023-sauvignon-blanc-current-releases)
-            \n\n**Price:** $45.00 (non-members)
+"Wines with sweet flavors can be delightful and are often enjoyed for their rich, luscious profiles. Here are some types of wines known for their sweetness:<br>1. **Moscato**: This sweet, lightly sparkling wine is known for its fruity flavors, often featuring notes of peach, apricot, and orange blossom. It's a popular choice for those who enjoy sweeter wines.<br>2. **Riesling**: Riesling can range from dry to sweet, with the sweeter varieties offering flavors of honey, stone fruits, and floral notes. Late harvest Rieslings are particularly sweet and rich.<br>3. **Sauternes**: This French dessert wine is made from grapes affected by noble rot, resulting in concentrated sweetness and flavors of honey, apricot, and caramel.<br>4. **Port**: A fortified wine from Portugal, Port is rich and sweet, often featuring flavors of dark fruits, chocolate, and spices. It's commonly enjoyed as a dessert wine.<br>5.**Ice Wine**: Made from grapes that have been frozen on the vine, ice wine is intensely sweet and concentrated, with flavors of tropical fruits and honey.<br>6. **Sweet Vermouth**: This fortified wine is flavored with various botanicals and is often sweet, making it a great addition to cocktails or enjoyed on iping.<br>Sweet wines can be enjoyed on their own or paired with desserts, cheeses, or spicy dishes. If you're looking for specific recommendations or want to know more about a particular wine, just let me know!"
 
