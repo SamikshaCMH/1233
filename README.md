@@ -4,7 +4,7 @@ It seems there was an issue retrieving specific in
 formation about wine tasting memberships at Jessup Cellars. However, I can share so
 me general insights about wine tasting memberships.
 <br>Wine tasting memberships typ
-ically offer a variety of benefits, such as:\n\n1. **Exclusive Access**: Members of
+ically offer a variety of benefits, such as:<br>1. **Exclusive Access**: Members of
 ten get exclusive access to limited-edition wines or special releases.\n2. **Discou
 nts**: Many memberships provide discounts on wine purchases, tastings, and events.\
 n3. **Tasting Events**: Members may be invited to exclusive tasting events, vineyar
