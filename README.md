@@ -1,16 +1,34 @@
 # 1233
-"Wines with high acidity are often characterized by their crispness and refreshing qualities. Here are some popular types of wines known for their high acidity:<br>1. **Sauvignon Blanc**: This white wine is known for its zesty acidity and bright citrus flavors, often accompanied by notes of green apple and herbs.<br>2. **Riesling**: Particularly in its dry forms, Riesling can exhibit high acidity, with floral aromas and flavors of stone fruits like peach and apricot.<br>3. **Chardonnay**: While some Chardonnays can be rich and buttery, those that are unoaked or from cooler climates tend to have higher acidity, showcasing flavors of green apple and lemon.<br>4. **Pinot Noir**: This red wine often has a bright acidity that balances its fruitiness, making it versatile for food pairings.<br>5. **Chianti**: Made primarily from Sangiovese grapes, Chianti wines are known for their high acidity, which complements their cherry and herbal flavors.<br>6. **Champagne and Sparkling Wines**: Most sparkling wines, including Champagne, have high acidity, contributing to their crispness and refreshing qualities.<br>7. **Albariño**: This Spanish white wine is celebrated for its bright acidity and flavors of citrus and stone fruits, making it an excellent pairing for seafood.<br>High-acid wines are fantastic for food pairings, as the acidity can cut through rich dishes and enhance flavors. If you're looking for specific recommendations or want to know more about a particular wine, just let me know!"
+Ah, Cabernet Franc! A delightful choice that often brings a lovely balance of fruitiness and subtle sweetness. While we don't have a specific Cabernet Franc listed at Jessup Cellars, we do have some fabulous blends that feature this grape, along with other delightful options. Let’s dive into some of our offerings that might pique your interest:
 
+### **1\. Table for Four**
 
+*   **Composition**: 61.8% Cabernet Sauvignon, 26.5% Cabernet Franc, 4.2% Petite Verdot, 3.5% Petite Sirah, 2.7% Malbec, 1.1% Merlot
+    
+*   **Appellation**: 100% Napa Valley
+    
+*   **Aging**: 22 months in 70% new French oak
+    
+*   **ABV**: 14.9%
+    
+*   **Winemaker Notes**: This wine is a harmonious blend with layers of complexity. Expect notes of ripe black cherry, blackberry, baking spice, and dark cacao. The palate is rich and balanced, making it perfect for pairing with a variety of dishes.
+    
+*   **Price**: $115
+    
+*   [**Shop Table for Four**](https://jessupcellars.com/shop/?view=product&slug=2019-table-for-four-curent-releases)
+    
 
+### **2\. Juel Red Wine**
 
-"Wines with sweet flavors can be delightful and are often enjoyed for their rich, luscious profiles. Here are some types of wines known for their sweetness:<br>1. **Moscato**: This sweet, lightly sparkling wine is known for its fruity flavors, often featuring notes of peach, apricot, and orange blossom. It's a popular choice for those who enjoy sweeter wines.<br>2. **Riesling**: Riesling can range from dry to sweet, with the sweeter varieties offering flavors of honey, stone fruits, and floral notes. Late harvest Rieslings are particularly sweet and rich.<br>3. **Sauternes**: This French dessert wine is made from grapes affected by noble rot, resulting in concentrated sweetness and flavors of honey, apricot, and caramel.<br>4. **Port**: A fortified wine from Portugal, Port is rich and sweet, often featuring flavors of dark fruits, chocolate, and spices. It's commonly enjoyed as a dessert wine.<br>5.**Ice Wine**: Made from grapes that have been frozen on the vine, ice wine is intensely sweet and concentrated, with flavors of tropical fruits and honey.<br>6. **Sweet Vermouth**: This fortified wine is flavored with various botanicals and is often sweet, making it a great addition to cocktails or enjoyed on iping.<br>Sweet wines can be enjoyed on their own or paired with desserts, cheeses, or spicy dishes. If you're looking for specific recommendations or want to know more about a particular wine, just let me know!"
-
-Sangiovese is such an intriguing grape, especially if you’re into Italian wines. Here’s a quick rundown of what makes Sangiovese so interesting:
-        <br>1.**Flavor Profile**: Sangiovese wines often burst with bright red fruit flavors like cherry and plum. You’ll also notice some earthy notes, a hint of herbs, and sometimes a bit of spice. It has a high acidity that makes it a fantastic match for a variety of foods.
-        <br>2.**Aging Potential**: Many Sangiovese wines are great when they’re young, but some have the potential to age really well. Over time, they develop complex flavors and aromas. Higher-quality Sangiovese can have firm tannins, which helps it age gracefully.
-        <br>3.**Food Pairing**: Thanks to its acidity and flavor profile, Sangiovese pairs beautifully with food. It’s especially good with Italian dishes like pasta with tomato-based sauces, grilled meats, and even pizza.
-        <br>4.Regional Variations: While Tuscany is the heartland of Sangiovese, you’ll find it in other parts of Italy and even in different countries. Chianti and Brunello di Montalcino are two of the most famous wines made from this grape.
-        <br>5.**Terroir Influence**: The taste of Sangiovese can vary quite a bit depending on where it’s grown. Factors like soil type, climate, and winemaking techniques all play a role in shaping the final wine.
-        If you’re curious about trying a Sangiovese or want to explore how it might fit into your wine preferences, just let me know! I’d love to share some stories or experiences about this wonderful grape.
+*   **Composition**: 56% Napa Valley Cabernet Sauvignon, 14% Cabernet Franc, 24% Merlot, with a splash of Petite Sirah, Petite Verdot, and Malbec.
+    
+*   **Aging**: 70% new French oak for 22 months
+    
+*   **ABV**: 14.9%
+    
+*   **Winemaker Notes**: A delightful blend that showcases dark fruit, baking spices, and earthy elements. It’s approachable yet age-worthy, inviting you to savor its intricacies.
+    
+*   **Price**: $115
+    
+*   [**Shop Juel**](https://jessupcellars.com/shop/?view=product&slug=2019-juel-napa-valley-current-releases)
         
